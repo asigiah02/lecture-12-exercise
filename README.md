@@ -7,3 +7,7 @@ Today, I met with my group to finalize our brainstorming. But I also Zoomed with
 
 What about you?
 oh wow! so busy! I just went shopping all day today lol
+
+wassup my friend
+im tired 
+im gonna go watch kdrama now
