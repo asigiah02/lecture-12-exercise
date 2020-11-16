@@ -6,3 +6,4 @@ Hi!
 Today, I met with my group to finalize our brainstorming. But I also Zoomed with two other groups for my other classes. Lots of group work and collaboration this weekend. - Yuhaniz
 
 What about you?
+oh wow! so busy! I just went shopping all day today lol
